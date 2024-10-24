@@ -1,5 +1,5 @@
 # 💫 About Me:
-BLACK-WIDOWS-TURING(hossein.hosseindoost)
+Software engineer at Turing Research Team(hossein.hosseindoust)
 
 
 ## 🌐 Socials:
